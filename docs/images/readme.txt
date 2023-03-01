@@ -1,0 +1,1 @@
+made a folder for images cause i hate mess. (IMAGES AND OTHER SHIT SOON!!)
